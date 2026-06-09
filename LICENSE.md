@@ -1,4 +1,4 @@
-
+ultimate mining tycoon Script advanced offers the most advanced ultimate mining tycoon Script, with no cooldown and infinite resources. Perfect for
 
 
 
